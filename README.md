@@ -1,2 +1,2 @@
 # poker_tracker
-GAYGAY IS A LOSER
+XK IS A LOSER
